@@ -54,7 +54,7 @@ Memakai Sc Lain Untuk Mengambil Session Atau Kalau Kalian Masih pengguna Satu Se
 ---------
 
 ## ```For User Panel, Buy Panel In This Number```
-[![WHATSAPP](https://img.shields.io/badge/Seller%20Panel-25D366?style=for-the-badge&logo=whatsapp&logoColor=white)](https://wa.me/6282214729677) 
+[![WHATSAPP](https://img.shields.io/badge/Seller%20Panel-25D366?style=for-the-badge&logo=whatsapp&logoColor=white)](https://wa.me/6285701863281) 
 ---------
 
 ## ```USER RAILWAY```
